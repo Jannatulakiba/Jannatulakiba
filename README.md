@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on web development
 - 📫 How to reach me jannatulakiba70023@gmail.com
 - 😄 Pronouns: akb
-- ⚡ Fun fact:
+- ⚡ live in Barishal,Bangladesh
 - 🎵 Off-hours: music lover & occasional composer
 
 💡 Always exploring better ways to build great project
